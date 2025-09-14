@@ -2,4 +2,4 @@
 
 ###
 
-<p align="left">--- lzt: lolz.live/crime<br>--- telegram: imbaVAIIB</p>
+<p align="left">--- lzt: lolz.live/development<br>--- telegram: vaibwright</p>
